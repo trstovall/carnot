@@ -239,7 +239,7 @@ Shelter is nice, but one man's tomb is another mans treasure.  How about two tom
 
 And liberty, y'all.
 
-And I'm tired of practicing so much witchgraft.
+And I'm tired of practicing so much witch graft.
 
 And who is the wife of the Father?
 
@@ -249,4 +249,6 @@ And if Man beget Man, wouldn't Womam beget Womam?
 
 And maybe some cross breeding?
 
-The crucifix could be considered a tree.  Or a tomb.
+The crucifix could be considered a tree.  Or a tomb.  Or you know.  Maybe something else entirely.
+
+But that's just the 'graft.
