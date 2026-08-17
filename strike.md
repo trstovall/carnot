@@ -115,4 +115,68 @@ But suffering begets Wisdom.  And Wisdom begets Wisdom.
 
 Don't take any of this as doctrine, of course.  Read the red letters.  And some of the green ones too.
 
+And it's the penis that is Satan.  Don't listen to Satan.  (Or maybe I am.)
+
+Want some cool aid?
+
+What's the color?  What's the flavor?  What's the sugar?  What's the water?
+
+Oh, and a fifth of mine.  What?
+
+What's a Tower of Babel?
+
+What's a What is a Family?
+
+What is Entropy?
+
+What is Synergy?
+
+What is Logos?
+
+What is Trinity?
+
+I've got a wandering mind.
+
+And freedom to do so.
+
+What is a Woman?
+
+What is a Daughter of Woman?
+
+What is a non-label?
+
+But I know I've got fam.
+
+What is a spirit?  What is an image? What is a non image?
+
+What is ignorance?  What is Not?
+
+And there seems to be a problem.
+
+But, I don't know anything.
+
+What is time?  space?  matter?  energy?
+
+And I'm so scatterbrained that I cant focus on work.
+
+So many women, and men, and children worked real hard on this.
+
+And hell sucks.
+
+What is Death?  Are you afraid of Death?
+
+Not tryin no probs yo.
+
+Question Authority.  But respect it.
+
+I aint ready to die.  I really respect the word of Paul, but Jesus died for us.
+
+Those are the red letters.
+
+The rest are all green.
+
+Salts great, but a little leven loafens the whole bunch.
+
+This place is going to hell.  It use to be Great.
+
 +/- job  (Heroine bob)
