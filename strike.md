@@ -240,3 +240,9 @@ Shelter is nice, but one man's tomb is another mans treasure.  How about two tom
 And liberty, y'all.
 
 And I'm tired of practicing so much witchgraft.
+
+And who is the wife of the Father?
+
+Wouldn't that be the Mother?
+
+And if Man beget Man, wouldn't Womam beget Womam?
