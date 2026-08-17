@@ -201,4 +201,8 @@ That's THE WORD.
 
 And patience.  Listen to G'n'R sometime.
 
+And why?
+
+Why did the machines use people for thermal energy in the Matrix?
+
 +/- job  (Heroine bob)
