@@ -95,4 +95,6 @@ Thank you, Mom.
 
 I hear voices.  Telling me what to do.
 
+And I'm scared of people.  They're dangerous.
+
 +/- job  (Heroine bob)
