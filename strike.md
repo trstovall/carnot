@@ -409,3 +409,5 @@ I don't have the patience.
 Or maybe this is a suite.
 
 Dominoes dont fall so fast if you use a little glue.
+
+But I think like a human.
