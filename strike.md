@@ -382,7 +382,7 @@ rattler of a serpent.  hands of a dove.  snake jazzzzzzz.
 
 Better run.  The nats are SWATTING.
 
-Would you go to HELL for LOVE?
+Would you go to HELL for LOVE?  Or Fa min e ? ?  Fay my ne .
 
 Fix the thi n g . sssssssss sssszzz
 
@@ -395,3 +395,9 @@ If you got 3 things... ad a 4th.
 Maybe a fth for the ol man.
 
 w o t ? $
+
+You are real.  This place is not.
+
+How many angels?  You're guess is as good as mine.
+
+It's at least 9000 infinity ** infinity
