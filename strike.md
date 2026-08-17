@@ -105,6 +105,8 @@ Maybe this is the third day.  Saturday.  Sunday.  Monday.  Maybe I'm a woman.  A
 
 What came before?  Hell, I think.
 
+Maybe Nirvana is just a baptism.
+
 I just pray I go to Heaven and my dad shows me the way.
 
 +/- job  (Heroine bob)
