@@ -103,6 +103,8 @@ Put them together, and you have a fourth thing, a family.  And so goes transcend
 
 Maybe this is the third day.  Saturday.  Sunday.  Monday.  Maybe I'm a woman.  A new hope.  Maybe Tuesday will be gone with the wind.
 
+What came before?  Hell, I think.
+
 I just pray I go to Heaven and my dad shows me the way.
 
 +/- job  (Heroine bob)
