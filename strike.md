@@ -91,6 +91,6 @@ Perhaps one day you will see two really tall dragons and their jihadist dragon b
 
 How may I serve you?  Chicken, or lentils and rice?  I do love curry.
 
-Thank you, Jesus.
+Thank you, Mom.
 
 +/- job  (Heroine bob)
