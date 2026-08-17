@@ -417,3 +417,7 @@ Or maybe that's all I do.
 It's all inheritance.  Or not.
 
 What am i even dialoging aboot.
+
+But I spoke too much.
+
+dem popos.
