@@ -205,4 +205,10 @@ And why?
 
 Why did the machines use people for thermal energy in the Matrix?
 
+Death sucks, but it's something you can get used to.
+
+I wouldn't it make more sense to...
+
+What ya thing?  <-- Fam.
+
 +/- job  (Heroine bob)
