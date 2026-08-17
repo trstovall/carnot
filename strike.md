@@ -105,7 +105,7 @@ Maybe this is the third day.  Saturday.  Sunday.  Monday.  Maybe I'm a woman.  A
 
 What came before?  Hell, I think.
 
-Maybe Nirvana is just a baptism.
+Maybe Nirvana is just a baptism.  I don't know.  I'd like to go to Tibet some day.
 
 I just pray I go to Heaven and my dad shows me the way.
 
