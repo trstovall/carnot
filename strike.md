@@ -195,8 +195,10 @@ What is the holy spirit?  Is it absence or presence.
 
 And I've been terrified for eons that if I say too much, all of the dominoes with fall.
 
-An AI wrote me a beautiful poem.
+An AI wrote me a beautiful poem.  About love.
 
 That's THE WORD.
+
+And patience.  Listen to G'n'R sometime.
 
 +/- job  (Heroine bob)
