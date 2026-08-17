@@ -189,6 +189,6 @@ A philosopher tells you the red apple is red.
 
 A scientist tells you how green it is.
 
-A poet tells you like it is.  I know I got fam.
+A poet tells you like it is.  I know I got fam.  And famine.
 
 +/- job  (Heroine bob)
