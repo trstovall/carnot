@@ -246,3 +246,7 @@ And who is the wife of the Father?
 Wouldn't that be the Mother?
 
 And if Man beget Man, wouldn't Womam beget Womam?
+
+And maybe some cross breeding?
+
+The crucifix could be considered a tree.  Or a tomb.
