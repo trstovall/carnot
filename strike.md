@@ -109,4 +109,10 @@ Maybe Nirvana is just a baptism.  I don't know.  I'd like to go to Tibet some da
 
 I just pray I go to Heaven and my dad shows me the way.
 
+Don't eat me.  Eat Jesus.  He likes it.
+
+But suffering begets Wisdom.  And Wisdom begets Wisdom.
+
+Don't take any of this as doctrine, of course.  Read the red letters.  And some of the green ones too.
+
 +/- job  (Heroine bob)
