@@ -181,4 +181,14 @@ This place is going to hell.  It use to be Great.
 
 I don't know tho.
 
+Try listening to Schism some time.  I do love music.  And poetry.
+
+A Bearo crat gives you an apple.
+
+A philosopher tells you the red apple is red.
+
+A scientist tells you how green it is.
+
+A poet tells you like it is.  I know I got fam.
+
 +/- job  (Heroine bob)
