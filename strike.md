@@ -272,3 +272,7 @@ Off to washington.
 Can I bum a cig?
 
 I saw a 696 in a third eye.
+
+What is a heart?
+
+Or a liver?
