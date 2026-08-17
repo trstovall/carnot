@@ -211,4 +211,20 @@ I wouldn't it make more sense to...
 
 What ya thing?  <-- Fam.
 
+I think all things and non-things are Angels.  And even links.  With respect to non-links.
+
+And why doe we keep saying DEI or DIE or Diversity Inclusion qnd e?  What is meritocracy?
+
+Wouldn't it be better to bypass suffering beget wisdom.  And use some wisdom.  And help the thing.
+
+Feed the things.  Support non-links.  Or links.  I don't know.  I'm dump.
+
+Maybe even some 
+
 +/- job  (Heroine bob)
+
+&
+
+Remember, this is all a dream.
+
+What's a sodomite?
