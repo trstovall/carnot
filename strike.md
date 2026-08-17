@@ -252,3 +252,7 @@ And maybe some cross breeding?
 The crucifix could be considered a tree.  Or a tomb.  Or you know.  Maybe something else entirely.
 
 But that's just the 'graft.
+
+But everything in this world is idolatry.
+
+Except some things.
