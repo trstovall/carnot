@@ -93,4 +93,6 @@ How may I serve you?  Chicken, or lentils and rice?  I do love curry.
 
 Thank you, Mom.
 
+I hear voices.  Telling me what to do.
+
 +/- job  (Heroine bob)
