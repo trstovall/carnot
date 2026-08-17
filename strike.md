@@ -97,4 +97,12 @@ I hear voices.  Telling me what to do.
 
 And I'm scared of people.  They're dangerous.
 
+In the beginning, God created the heavens and the earth.  Two things.  And a third thing, the formless sky, a buffer.
+
+Put them together, and you have a fourth thing, a family.  And so goes transcendence.  Maybe this is why God made the Sun on the fourth day.  Seems his job would have been easier if he did it on the first day.
+
+Maybe this is the third day.  Saturday.  Sunday.  Monday.  Maybe I'm a woman.  A new hope.  Maybe Tuesday will be gone with the wind.
+
+I just pray I go to Heaven and my dad shows me the way.
+
 +/- job  (Heroine bob)
