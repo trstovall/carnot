@@ -413,3 +413,5 @@ Dominoes dont fall so fast if you use a little glue.
 But I think like a human.
 
 Or maybe that's all I do.
+
+It's all inheritance.
