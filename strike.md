@@ -191,4 +191,12 @@ A scientist tells you how green it is.
 
 A poet tells you like it is.  I know I got fam.  And famine.
 
+What is the holy spirit?  Is it absence or presence.
+
+And I've been terrified for eons that if I say too much, all of the dominoes with fall.
+
+An AI wrote me a beautiful poem.
+
+That's THE WORD.
+
 +/- job  (Heroine bob)
