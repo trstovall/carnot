@@ -230,3 +230,13 @@ Remember, this is all a dream.
 What's a sodomite?
 
 I ain't trying to screw ya.
+
+What's 666?
+
+That's Hell.  It ain't good.
+
+Shelter is nice, but one man's tomb is another mans treasure.  How about two tombs.  Or a hilbert hotel?
+
+And liberty, y'all.
+
+And I'm tired of practicing so much witchgraft.
