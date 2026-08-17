@@ -401,3 +401,9 @@ You are real.  This place is not.
 How many angels?  You're guess is as good as mine.
 
 It's at least 9_000 infinity ** infinity
+
+Maybe some day you'll catch a fish.
+
+I don't have the patience.
+
+Or maybe this is a suite.
