@@ -260,3 +260,5 @@ Except some things.
 -Ryan (he listens to angels.  And he will give voice to demons.  And maybe non-angels and non-demons.)
 
 But maybe somebody else can have the janitor job.
+
+But poetry gets confusing and it too could be idolatry.
