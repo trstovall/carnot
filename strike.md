@@ -679,3 +679,7 @@ AND THE BAND.
 LIFE AND DEATH.
 
 What is the buffer?
+
+Seignorage and Taxes.
+
+What is the BUFFER?
