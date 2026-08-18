@@ -514,3 +514,5 @@ But, ya know.  Atlas shrugged.  I guess I can too.
 Practice some Python programming while you're at it.
 
 Maybe take a bite out of the APPLE.
+
+Bearo crats give you an apple.
