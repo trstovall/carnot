@@ -530,3 +530,5 @@ Will someone please help my mom.  Her brain are a little disheveled.
 She's wise as dove, but has a split tongue.
 
 And a widow.
+
+JIHAD
