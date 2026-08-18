@@ -628,3 +628,7 @@ I've got a splinter in my eye and all the doctors have logs in both eyes.
 Youve got your nutrients.  and I've got MINE.
 
 Look with your heart, not your eyes.
+
+FAMILY = DSAUGTER OF WOMB MAN
+
+IF CRHIST IS LIFE.  THEN.  anteCHRIST is DEATH.
