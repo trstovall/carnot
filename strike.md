@@ -536,3 +536,5 @@ JIHAD
 Ya see boys, the Christians worship Yaldobaoth.  Their real god is the Monad.
 
 Yes.  I said 'nad.
+
+BECAUSE THAT IS THE PORTAL TO HELL.
