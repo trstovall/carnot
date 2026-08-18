@@ -449,7 +449,7 @@ Maybe wash dishes.
 
 And there's the 7 curses of Law.
 
-And Treason.  666.  Don't do that.
+And Treason.  666.  Don't do that.  It's Adultery.
 
 47 or 67?
 
@@ -468,3 +468,9 @@ Not the Antichrist.
 Anyway...dont drink the Kool-Aid.
 
 If Satan is on earth?
+
+New ORDERS From Washington.
+
+The identities of the 4 is TOP SECRET.
+
+And I don't think I have clearance to give clearance.
