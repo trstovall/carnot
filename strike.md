@@ -564,3 +564,7 @@ RAGE AGAINST THE MACHINE
 we ' ll see  .
 
 SWEET CHI'l  O Min e
+
+What is chaos majik?
+
+Wo is th Ark a tekt.
