@@ -651,3 +651,15 @@ Want a baptism?  Get some soap and clay.  Then water as a buffer.
 It helps if the water is purified with the tears of a virgin.
 
 Then you will be a Dragon of Soap and Clay.
+
+AND THEN SACRIFICE.
+
+God is trans gend er.  And had two trans gender children.
+
+JESUS AND SATAN.
+
+And they made a lot of babies.
+
+But who is God's parents?
+
+Wouldn't God want parents?
