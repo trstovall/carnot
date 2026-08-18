@@ -743,3 +743,5 @@ Love ya.
 Now for some privacy.
 
 And faith and devotion.
+
+and patience.
