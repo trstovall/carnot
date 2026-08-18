@@ -632,3 +632,7 @@ Look with your heart, not your eyes.
 FAMILY = DSAUGTER OF WOMB MAN
 
 IF CRHIST IS LIFE.  THEN.  anteCHRIST is DEATH.
+
+That's a hard fella to kill.
+
+DEATH = KKK PPUNK .!*1
