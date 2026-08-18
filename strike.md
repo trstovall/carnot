@@ -578,3 +578,5 @@ H A P ?
 what is false love?
 
 a symbol?  or a cymbal?  or a simba ?
+
+or a tom b sto ne?  w h o ?  t o m ?  sto ne ??
