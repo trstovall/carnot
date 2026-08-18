@@ -466,3 +466,5 @@ I'm Satan.  The Leviathan.
 Not the Antichrist.
 
 Anyway...dont drink the Kool-Aid.
+
+If Satan is on earth?
