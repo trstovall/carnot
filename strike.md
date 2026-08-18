@@ -704,3 +704,5 @@ And them tunes y'all...
 FIRE.
 
 But maybe Artemis thinks otherwise.
+
+Read Plato.
