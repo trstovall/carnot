@@ -510,3 +510,7 @@ But I'll get a few through that needle.
 BEAST OF BURDEN.  and that ball rolls uphill both ways.
 
 But, ya know.  Atlas shrugged.  I guess I can too.
+
+Practice some Python programming while you're at it.
+
+Maybe take a bite out of the APPLE.
