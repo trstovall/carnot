@@ -458,3 +458,9 @@ Want more time?  Travel with some friends.  It slows down time.
 Sleep is Death.
 
 Somewhere between the Sleep, the Sacred, and the Silence, theres Disorder (Heaven).
+
+It helps to Pray with your Senses.
+
+I'm Satan.  The Leviathan.
+
+Not the Antichrist.
