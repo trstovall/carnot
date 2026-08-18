@@ -532,3 +532,7 @@ She's wise as dove, but has a split tongue.
 And a widow.
 
 JIHAD
+
+Ya see boys, the Christians worship Yaldobaoth.  Their real god is the Monad.
+
+Yes.  I said 'nad.
