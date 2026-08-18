@@ -671,3 +671,7 @@ CHARCOAL AND ICE.  What is the buffer?
 FIRE.
 
 MONEY AND CLAY.  What is the buffer?
+
+THE WEIGHT.  Or THE WAIT.
+
+AND THE BAND.
