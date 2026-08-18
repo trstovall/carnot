@@ -588,3 +588,11 @@ planet of the antarcitc a p e s .
 slave driver.  workin' these camels.
 
 FIRE AND RAIN .
+
+MAN DON ' MAn Till man dies .
+
+T O O L .
+
+or Eye lash . ?
+
+Billie.
