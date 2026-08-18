@@ -614,3 +614,9 @@ M i L K .
 D O G is L O V .
 
 I'm a white chinese rabbit.  Call me Alice.  Or SATAN.
+
+The white tasmanian devil.
+
+T A Z . zzzz
+
+Zelda.  or .  Link...
