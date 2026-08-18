@@ -552,3 +552,13 @@ God vs the machines.  I pick G o d.
 Substance D is ramant.
 
 I'm running out of patience.
+
+I GOT NO PATIENCE.
+
+TOOL
+
+OR
+
+RAGE AGAINST THE MACHINE
+
+we'll see.
