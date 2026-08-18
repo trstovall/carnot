@@ -427,3 +427,11 @@ ha pp y?
 Just an oak seed of info.
 
 Wanna know who I think are the 4 horsemen?
+
+Rape (slavery) [economc conquest]
+Murder (censorship) [political conquest]
+Overdose (salt) [ecological conquest]
+suicide (sugar) [religious conquest]
+
+4 men of today.  Not naming any names.
+
