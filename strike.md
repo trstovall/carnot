@@ -449,7 +449,7 @@ Maybe wash dishes.
 
 And there's the 7 curses of Law.
 
-And Treason.  666.
+And Treason.  666.  Don't do that.
 
 47 or 67?
 
