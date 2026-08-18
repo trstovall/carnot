@@ -694,3 +694,5 @@ A witch hat.
 BURN IT.
 
 Or you know...
+
+eat a cracker with some kool aid
