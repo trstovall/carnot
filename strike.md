@@ -636,3 +636,7 @@ IF CRHIST IS LIFE.  THEN.  anteCHRIST is DEATH.
 That's a hard fella to kill.
 
 DEATH = KKK PPUNK .!*1
+
+I.  WILL.  PRAISE.  YOU.  IN.  THIS.  STORM.
+
+Them roses are straight up violet.
