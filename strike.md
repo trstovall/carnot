@@ -726,3 +726,7 @@ What's a monad?
 Think of a number and blink.
 
 Nope.
+
+crime begets crime
+
+Unless you forgive.  That's the breaker of chains.
