@@ -438,3 +438,9 @@ suicide (sugar) [religious conquest]
 And the broad path.  and the narrow way.
 
 Hank Hill, and fam.
+
+But hey, if it's too hot in the kitchen,
+Mom will send you to the dining room,
+Feed you,
+Tend your wounds,
+And send you back out to cook.
