@@ -690,3 +690,5 @@ GOD and PEOPLE.
 What?
 
 A witch hat.
+
+BURN IT.
