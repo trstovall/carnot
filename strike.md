@@ -755,3 +755,5 @@ deaf dum and bilind.....,
 fire beget fire when two becom
 
 ass n feet
+
+head n heart
