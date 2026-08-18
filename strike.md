@@ -644,3 +644,5 @@ Them roses are straight up violet.
 BURN IT.  OR .  FIX IT.
 
 BURN IT.
+
+just another red clay stray...
