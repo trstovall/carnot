@@ -640,3 +640,5 @@ DEATH = KKK PPUNK .!*1
 I.  WILL.  PRAISE.  YOU.  IN.  THIS.  STORM.
 
 Them roses are straight up violet.
+
+BURN IT.  OR .  FIX IT.
