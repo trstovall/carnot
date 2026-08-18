@@ -547,4 +547,4 @@ Hello, My Name is HUMAN.
 
 dem bearo grats.
 
-God vs the machines.  I pick God.
+God vs the machines.  I pick G o d.
