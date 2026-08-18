@@ -665,3 +665,7 @@ But who is God's parents?
 Wouldn't God want parents?
 
 but i'm a man...
+
+CHARCOAL AND ICE.  What is the buffer?
+
+FIRE.
