@@ -730,3 +730,13 @@ Nope.
 crime begets crime
 
 Unless you forgive.  That's the breaker of chains.
+
+Sometimes suffering begets wisdom.  But it mostly begets suffering.
+Sometimes wisdom begets suffering.  But it mostly begets wisdom.
+And they really like babies.  And parents.
+But there's always that one loaf.  Who wants to blow them all away.
+
+Or see things get better.
+
+Love ya.
+
