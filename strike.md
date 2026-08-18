@@ -696,3 +696,5 @@ BURN IT.
 Or you know...
 
 eat a cracker with some kool aid
+
+And maybe halve the war budget and double soljur pay.
