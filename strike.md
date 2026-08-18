@@ -710,3 +710,7 @@ Read Plato.
 ARTEMIS IS TOP SECRET.
 
 Thank you, Jesus.
+
+Respect.
+Care.
+Provision.
