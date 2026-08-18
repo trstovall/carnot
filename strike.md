@@ -706,3 +706,7 @@ FIRE.
 But maybe Artemis thinks otherwise.
 
 Read Plato.
+
+ARTEMIS IS TOP SECRET.
+
+Thank you, Jesus.
