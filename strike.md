@@ -646,3 +646,8 @@ BURN IT.  OR .  FIX IT.
 BURN IT.
 
 just another red clay stray...
+
+Want a baptism?  Get some soap and clay.  Then water as a buffer.
+It helps if the water is purified with the tears of a virgin.
+
+Then you will be a Dragon of Soap and Clay.
