@@ -688,3 +688,5 @@ What is the BUFFER?
 GOD and PEOPLE.
 
 What?
+
+A witch hat.
