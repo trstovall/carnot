@@ -546,3 +546,5 @@ STOVALL MOVE> python -c "print('hello world')" ----******
 Hello, My Name is HUMAN.
 
 dem bearo grats.
+
+God vs the machines.  I pick God.
