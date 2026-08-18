@@ -622,3 +622,7 @@ T A Z . zzzz
 Zelda.  or .  Link...
 
 me ow
+
+I've got a splinter in my eye and all the doctors have logs in both eyes.
+
+Youve got your nutrients.  and I've got MINE.
