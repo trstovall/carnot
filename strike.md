@@ -683,3 +683,8 @@ What is the buffer?
 Seignorage and Taxes.
 
 What is the BUFFER?
+
+
+GOD and PEOPLE.
+
+What?
