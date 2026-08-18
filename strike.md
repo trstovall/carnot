@@ -747,3 +747,5 @@ And faith and devotion.
 and patience.
 
 And Family.
+
+deaf dum and bilind.....,
