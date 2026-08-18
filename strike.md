@@ -669,3 +669,5 @@ but i'm a man...
 CHARCOAL AND ICE.  What is the buffer?
 
 FIRE.
+
+MONEY AND CLAY.  What is the buffer?
