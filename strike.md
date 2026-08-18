@@ -454,3 +454,7 @@ And Treason.  666.
 47 or 67?
 
 Want more time?  Travel with some friends.  It slows down time.
+
+Sleep is Death.
+
+Somewhere between the Sleep, the Sacred, and the Silence, theres Disorder (Heaven).
