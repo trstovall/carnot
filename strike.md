@@ -522,3 +522,5 @@ Anyway...can i bum a cig?
 They help me breath, but everyone is different.
 
 Maybe with all the witch 'graft, I'll resurrect Jesus someday.
+
+WHAT IS ENTROPY?  That's top secret.
