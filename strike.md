@@ -749,3 +749,5 @@ and patience.
 And Family.
 
 deaf dum and bilind.....,
+
+a scanner lightly
