@@ -525,4 +525,8 @@ Maybe with all the witch 'graft, I'll resurrect Jesus someday.
 
 WHAT IS ENTROPY?  That's top secret.
 
-Will someone please help my mom.  Her brains are a little disheveled.
+Will someone please help my mom.  Her brain are a little disheveled.
+
+She's wise as dove, but has a split tongue.
+
+And a widow.
