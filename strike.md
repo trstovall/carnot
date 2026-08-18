@@ -600,3 +600,7 @@ Billie.
 gol den ' cl ay .
 
 its ok to b a man.
+
+The American flag has too many colors.  It should be White and Red and Pink.  And maybe a Lone Star.
+
+Or maybe an Earth.  And a moon.  And a SUN.  and SPACE.
