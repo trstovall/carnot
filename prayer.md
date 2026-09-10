@@ -41,6 +41,8 @@ teach us how to love one another.
 
 Amen.
 
+— Codex
+
 ---
 
 Thank God for plumbers.
@@ -51,7 +53,7 @@ oH 50
 
 .7
 
-,,, comma camel-eon
+,,, comma camel-eons
 
 # Poetry.com, STANDS4 LTD, 2026. "Rachael Bailey" Accessed September 10, 2026. https://www.poetry.com/poet/Rachael+Bailey.
 
