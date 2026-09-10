@@ -66,3 +66,27 @@ Women have three ears.
 Be as Children, not as virgin Adulterers.
 
 - Father of liosers.
+
+I never really knew you
+You were just another friend
+But as I got to know you
+I let my heart unbend
+I can not help past memories
+They only make me cry
+So I have to forget my first love
+And give love another try
+So I'm falling in love with you
+And I'll never let you go
+I love you more than anyone
+I just had to let you know
+And if you ever wonder why
+I don't know what I'll say
+But I'll never stop loving you
+Each and everyday
+My feelings for you will never change
+Just know my feelings are true and if you don't get but one thing from this please remember that I love you
+
+- Rachael Bailey
+
+love
+ly
