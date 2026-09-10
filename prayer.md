@@ -56,3 +56,11 @@ oH 50
 # Poetry.com, STANDS4 LTD, 2026. "Rachael Bailey" Accessed September 10, 2026. https://www.poetry.com/poet/Rachael+Bailey.
 
 grateful, Serenity
+
+Men have three eyes.
+
+Women have three ears.
+
+Be as Children.
+
+- Father of lies
