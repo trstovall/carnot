@@ -65,4 +65,4 @@ Women have three ears.
 
 Be as Children, not as virgin Adulterers.
 
-- Father of lies
+- Father of liosers.
