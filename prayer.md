@@ -61,6 +61,6 @@ Men have three eyes.
 
 Women have three ears.
 
-Be as Children.
+Be as Children, not as virgin Adulterers.
 
 - Father of lies
