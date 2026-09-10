@@ -40,3 +40,13 @@ In the name of Jesus,
 teach us how to love one another.
 
 Amen.
+
+---
+
+Thank God for plumbers.
+
+And po-pos.  Maybe.
+
+oH 50
+
+.7
