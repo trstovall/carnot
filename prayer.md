@@ -110,3 +110,5 @@ buddha
 in the name
 
 Jesus
+
+copyright 0 - 2026 a.d.
