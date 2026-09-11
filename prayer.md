@@ -90,3 +90,8 @@ Just know my feelings are true and if you don't get but one thing from this plea
 
 love
 ley
+'
+
+Allah is a creator who brings the light and pushes back the darkness.
+
+A benevolent deceiver.
