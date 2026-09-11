@@ -101,3 +101,12 @@ Jesus is good.
 Allahu akbar.
 
 A measure of quality and of quantity.
+
+isa mohamed jihad
+.
+
+buddha
+
+in the name
+
+Jesus
