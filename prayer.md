@@ -99,3 +99,5 @@ A benevolent deceiver.
 Jesus is good.
 
 Allahu akbar.
+
+A measure of quality and of quantity.
