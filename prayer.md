@@ -95,3 +95,7 @@ ley
 Allah is a creator who brings the light and pushes back the darkness.
 
 A benevolent deceiver.
+
+Jesus is good.
+
+Allahu akbar.
