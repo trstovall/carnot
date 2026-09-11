@@ -89,4 +89,4 @@ Just know my feelings are true and if you don't get but one thing from this plea
 - Rachael Bailey
 
 love
-ly
+ley
