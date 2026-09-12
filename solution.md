@@ -52,4 +52,4 @@ i'm still fine
 red clay strays (Dragons of Soap and Clay).
 
 praise you in this storm, casting crowns
-umbrella, rihanna
+umbrella (orange version), rihanna
