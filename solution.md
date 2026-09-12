@@ -89,3 +89,5 @@ next?
 Keep the Wolves Away, uncle lucius
 
 2 + 2 = 5
+
+Voice of Truth, Casting Crowns
