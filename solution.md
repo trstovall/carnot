@@ -11,4 +11,6 @@ Suppose Sam gets 7 votes and Bob gets 2 votes.  Popular voting gives Sam 9/9 cha
 
 This is possible with cryptographic commitments and some basic modular arithmetic.
 
+The law of this coalition should be rooted in this law:  666 is Treason.
+
 -- heart, the pretty reckless
