@@ -20,3 +20,6 @@ RRR i'm a pirate.  don' ye plunder me booty.
 -- swamp song, tool
 -- my name is mud, primus
 -- i love you, billie eilish
+
+-- eyes on fire, blue foundation
+-- bath salts, highly suspect
