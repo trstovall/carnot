@@ -97,3 +97,5 @@ Life.  Thank you, Allah.
 And breath.  And everything else.
 
 Rejoice.  And be glad in it.
+
+Here comes the sun, doo doo doot doo.
