@@ -13,4 +13,6 @@ This is possible with cryptographic commitments and some basic modular arithmeti
 
 The law of this coalition should be rooted in this law:  666 is Treason.
 
+RRR i'm a pirate.  don' ye plunder me booty.
+
 -- heart, the pretty reckless
