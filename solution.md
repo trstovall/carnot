@@ -1,0 +1,14 @@
+
+Popular vote has failed.
+
+I call upon the many nations to each send 7 representatives to govern greater Jerusalem by governmental ensemble.
+
+Let it be known that this ensemble is *truly* wicked, so any attempt to increase perimeter must be taken as a *serious* threat.
+
+To restore representative democracy we must allow lottery voting.
+
+Suppose Sam gets 7 votes and Bob gets 2 votes.  Popular voting gives Sam 9/9 chance to win, and Bob 0/9.  Lottery voting should give Sam 7/9 chance and Bob 2/9, assuming 9 voters and 2 candidates.  The lottery should be quantum hardened.
+
+This is possible with cryptographic commitments and some basic modular arithmetic.
+
+-- heart, the pretty reckless
