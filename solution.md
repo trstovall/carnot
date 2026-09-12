@@ -17,3 +17,6 @@ RRR i'm a pirate.  don' ye plunder me booty.
 
 -- heart, the pretty reckless
 -- fairly local, twenty one pilots
+-- swamp song, tool
+-- my name is mud, primus
+-- i love you, billie eilish
