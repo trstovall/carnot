@@ -115,3 +115,5 @@ Ramble On, Led Zepplin
 Alfadhirhaiti, Heilung
 
 Carry On My Wayward Son, Kansas
+
+Seek simplicity.
