@@ -117,3 +117,5 @@ Alfadhirhaiti, Heilung
 Carry On My Wayward Son, Kansas
 
 Seek simplicity.
+
+learn grammars.
